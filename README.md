@@ -1,16 +1,15 @@
-## Hi there 👋
+# " 𝐼 𝓉hought 𝓉hat 𝐼 𝓌as 𝒹reamin' 𝓌hen 𝓎ou 𝓈aid 𝓎ou 𝓁ove 𝓂e " 
 
-<!--
-**X1NGQIU/X1NGQIU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
 
-Here are some ideas to get you started:
+![](https://i.pinimg.com/736x/1a/2e/53/1a2e53fa6904ed44f5faee4dfcf098d5.jpg)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://i.pinimg.com/736x/2a/6e/8f/2a6e8f04481d530e5666478688b45a8b.jpg)
+
+Nicholas , minor ◡ he / him !
+
+Always @ hyv area . Always C + H !! 
+
+Xingqiu irl
+
